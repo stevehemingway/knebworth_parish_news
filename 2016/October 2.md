@@ -1,0 +1,9 @@
+Introduction
+
+I make no apologies for returning to the topic of the Local Plan. I wrote last month about specific factors affecting Knebworth and, in particular, about the seven sites on the edge of the main urban area to the east of the motorway. This month I would like to look at the broader context. Allocation of new development sites does not happen very often. The last time this happened was in 1992. (Although the current plan is dated 1996, no additional sites were allocated above those already in the 1992 Plan.) The current Submission Draft, if adopted, will shape the pattern of development in our District for the next fifteen years, and in reality years after.
+
+Assuming that the NHDC Cabinet approves the current draft, residents will get their final chance to influence the adopted Local Plan. This round of consultation is quite different to previous ones in that now the responses will be considered by the Planning Inspector, not by NHDC itself. (Submissions will be collected and collated by NHDC, but not responded to by it.) It is expected that the consultation will run from the 19th October to the 30th December. This is the statutory minimum period, and runs over the Christmas period, so it is important that residents know about the process as soon as possible. Please alert your friends and neighbours, many of whom will not subscribe to the Parish News, about the importance of keeping themselves informed. 
+
+Under the National Planning Policy Framework, which grew out of the 2011 Localism Act, Local Plans are required to be 'sound'. This rather technical description requires them to be:
+
+-  
