@@ -1,0 +1,8 @@
+# really just ignore anything apart from markdown 
+
+*.jpg
+*.docx
+*.xls
+*.doc
+*.xlsx
+

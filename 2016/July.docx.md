@@ -1,0 +1,59 @@
+NHDC awards grants every year of around half a million pounds. The
+existing policy for determining eligibility for grants largely dates
+back to 2002 and is no longer fit for purpose. The proposed revised
+policy puts some more stringent requirements on bodies applying for
+grants. One of the recommendations is that 'precepting bodies' (i.e.
+parish councils) be no longer eligible to apply for grants. Another is
+that no grant will be awarded to a body that has applied for grants in
+the previous two civic years. Southern Rural, along with the other area
+committees, will suffer an approximately 50% drop in the funds available
+for grants. This is a consequence of essential budget cuts. 
+
+It is recognized that parishes such as Knebworth may have difficulty
+raising funds for capital projects. A new capital funding scheme has
+been proposed which is designed to help both rural and urban capital
+projects. The idea is that village and community halls can be helped out
+when they have larger capital spending needs. The proposal is to make
+available a quarter of a million pounds annually.
+
+The grants policy and the capital funding scheme are expected to be
+approved at Cabinet on 14th June. It is expected that the proposed areas
+for the Neighbourhood Plans for Knebworth (and Preston) will be approved
+at this meeting.
+
+The current Grounds Maintenance contract ends on 31 March 2017. A few
+minor changes to the specification of the contract have been
+recommended. It is considered that the contract is going well and that
+the work represents good value for money. Under the contract NHDC
+gets parks, gardens, verges, cemeteries and outdoor sports facilities
+maintained.  Knebworth chooses to maintain its own recreation grounds.
+
+On the matter of cemetaries, I will be going to inspect the Knebworth
+cemetery (off Wadnall Way). This has been subject to repeated bouts of
+flooding. Stephen McPartland MP as well as offices from NHDC will be
+present. It is hoped that improved drainage can be dug before next
+winter.
+
+The current Waste and Street Cleaning contract ends on 8th May 2018. and
+the process of re-letting this has already begun. This is a critical
+part of the Council's services, and in fact represents around 45% of
+total costs. If affects every single household in North Herts and is
+considered to be well operated. The district comes sixteenth in the
+country for proportion of waste recycled. 
+
+It is expected that on 14 June, the NHDC Cabinet will approve the
+Neighbourhood Plan area for Knebworth. This is the whole of the parish.
+See the Parish Council article in this issue for further information
+about the Neighbourhood Plan.
+
+Cllr Julian Cunningham will be attending the Parish Council meeting on
+13 July at 8pm. He is the Executive Member (i.e. member of NHDC Cabinet)
+with responsibility for parking policy . An hour at the beginning of the
+meeting has been set aside to discuss parking problems in the village.  
+
+On 20th July it is expected that there will be an extraordinary meeting
+of the Council to approve a draft Local Plan. Work on the plan is
+proceeding at a feverish pace. The plan will be scrutinized by a
+planning inspector at a public enquiry, probably in 2017. Please check
+the NHDC website for confirmation that this meeting is going ahead.
+
